@@ -1,0 +1,1 @@
+Hi, I'm wade i've been on my journey to becoming a very successful software engineer, i appreciate working together with fellow tech enthusiast to share ideas. I'm available on linkedin linkedin.com/in/tes-mars-621354147 and you can also mail me wadetrager@gmail.com
